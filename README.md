@@ -1,2 +1,10 @@
-# fronted-starter
-Repo for learning frontend stuff
+This my first repository
+knkkmkmk
+jnnnnnnnnnnnnnnn
+7777777777777777
+kmckmks
+kjdknkjnask
+cascsacas
+saascsacsa
+sacasac
+sacas
